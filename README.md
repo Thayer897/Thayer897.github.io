@@ -1,1 +1,1 @@
-# Thayer897.github.io.-
+# Thayer897.github.io
